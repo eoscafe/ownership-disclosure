@@ -1,4 +1,4 @@
-# EOS Cafe Calgary: Ownership Disclosure
+# EOS Cafe Block: Ownership Disclosure
 We will keep this disclosure up to date at all times
 
 Syed Jafri - 33.33%  
